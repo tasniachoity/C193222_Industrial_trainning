@@ -1,0 +1,1 @@
+# C193222_Industrial_trainning
